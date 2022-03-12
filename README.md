@@ -1,0 +1,1 @@
+# spritzschutz-herd-zum-kleben
